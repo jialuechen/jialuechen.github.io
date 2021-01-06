@@ -1,4 +1,4 @@
 ## Jialue Chen
-## Quant. Software Development Engineer. Investor.
-## Derivatives Analyst @ J.P. Morgan (Since 2020)
+## Quant. SDE. Investor.
+## Derivatives Analyst @ J.P. Morgan. CIB Sales & Trading.
 ## New York, NY
